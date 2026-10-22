@@ -1,0 +1,1 @@
+# Fatometere-global-mining-agentic-core-I
